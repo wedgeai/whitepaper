@@ -1,2 +1,2 @@
 # whitepaper
-WEDGE + AXE | WHITEPAPER
+WEDGE WHITEPAPER New version coming soon :D
