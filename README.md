@@ -1,2 +1,2 @@
 # whitepaper
-WEDGE WHITEPAPER New version coming soon :D
+WEDGE WHITEPAPER New version coming soon
